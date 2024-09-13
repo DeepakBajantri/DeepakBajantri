@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DeepakBajantri
-- 👀 I’m interested in Data analyst
+- 👀 I’m interested in Data analyst and software engineer roles
 - 🌱 I’m currently learning Data analysis tools
 - 📫 reach me through deepakvbajantrisms@gmail.com or +91 8867981656
 - 😄 Pronouns: ...
